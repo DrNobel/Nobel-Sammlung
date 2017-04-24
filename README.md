@@ -1,2 +1,0 @@
-# Nobel-Sammlung
-Nobels Spielwiese
